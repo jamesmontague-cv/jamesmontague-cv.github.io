@@ -1,3 +1,5 @@
+<meta name="google-site-verification" content="kXD4TdngNR8X74HwczsCSk2FluputroxhSo_YbkeR7w" />
+
 # Best Watch Guides and OEM Websites
 
 This is a list of all useful watch-related websites and resources I have come across.
